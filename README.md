@@ -11,3 +11,6 @@ Photo by Alex Green: https://www.pexels.com/photo/little-asian-kids-showing-ice-
 Photo by Lucas Andrade: https://www.pexels.com/photo/ice-cream-in-clear-glass-cup-9343039/
 
 Photo by Kristina Paukshtite: https://www.pexels.com/photo/sundae-in-shallow-photo-1146758/
+
+Photo by Teejay: https://www.pexels.com/photo/two-ice-cream-cups-1362534/
+
